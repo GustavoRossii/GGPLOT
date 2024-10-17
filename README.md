@@ -1,1 +1,1 @@
-[![Notion](https://w7.pngwing.com/pngs/1001/583/png-transparent-notion-round-logo-tech-companies.png)](https://www.notion.so/Trabalho-GGplot-2f51fda742f048e7a248eb2ac4432e00)
+![Texto Alternativo](https://cdn.iconscout.com/icon/free/png-256/free-notion-logo-icon-download-in-svg-png-gif-file-formats--productivity-application-brand-apps-pack-logos-icons-8630396.png?f=webp&w=256) [Notion](https://www.notion.so/Trabalho-GGplot-2f51fda742f048e7a248eb2ac4432e00)
